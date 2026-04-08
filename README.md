@@ -1,2 +1,0 @@
-# impostergame1
-imposter
